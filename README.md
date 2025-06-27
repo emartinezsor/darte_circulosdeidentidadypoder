@@ -1,1 +1,0 @@
-# darte_circulosdeidentidadypoder
